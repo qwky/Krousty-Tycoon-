@@ -1,1 +1,1 @@
-# Krousty-Tycoon-
+# Krousty-Tycoon
